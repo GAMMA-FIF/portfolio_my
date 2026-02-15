@@ -26,4 +26,4 @@
 ## 📫 Контакты
 - Email: ilkix1927@gmail.com
 - Telegram: @gamma_1927
-- Резюме: 
+- Резюме: https://disk.yandex.ru/d/BjxEuTTFtW_4bg
